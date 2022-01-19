@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DEVIL-PREDATOR
-- 👀 I’m interested in coading and learing about new technologu
+- 👀 I’m interested in coading and learing about new technology
 - 🌱 I’m currently doing btech
 - 📫 contact me on telegram https://t.me/DEVIL_PREDATOR_XD
 <!---
